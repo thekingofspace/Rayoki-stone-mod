@@ -1,2 +1,0 @@
-# Rayoki-stone-mod
-yeet
